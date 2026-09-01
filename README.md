@@ -75,7 +75,9 @@
 *   **Network Status:** 8,492+ Active Matrix Users
 *   **Overlay Modality:** External DWM (DirectComposition)
 
+</div>
 
+<!-- SEO: valorant-cheat, valorant-hack, valorant-aimbot, valorant-esp, vanguard-bypass, undetected-cheat, valorant-spoofer, aim-assist, wallhack, riot-vanguard, valorant-color-aimbot, hwid-spoofer -->
 
 
 
